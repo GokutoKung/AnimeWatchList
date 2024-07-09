@@ -1,1 +1,1 @@
-# Managa
+# Manga
